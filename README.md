@@ -14,7 +14,7 @@
 <br>
 
 #### Only if its Important :
-- ~~zueyenfe@protonmail.com~~ ~ E-mail
-- ZueyEnfe#5457 ~ Discord
+- I dont thing Im important enough for that ~ E-mail
+- ~~ZueyEnfe#5457~~ Thrumbo#5457 ~ Discord
 - I forgot ~ Matrix
-- @ZueyEnfe ~ Revolt
+- ~~@ZueyEnfe~~ it's dead ~ Revolt
