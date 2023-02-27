@@ -15,6 +15,6 @@
 
 #### Only if its Important :
 - I dont thing Im important enough for that ~ E-mail
-- ~~ZueyEnfe#5457~~ Thrumbo#5457 ~ Discord
+- ~~ZueyEnfe#5457~~   Thrumbo#5457 ~ Discord
 - I forgot ~ Matrix
 - ~~@ZueyEnfe~~ it's dead ~ Revolt
